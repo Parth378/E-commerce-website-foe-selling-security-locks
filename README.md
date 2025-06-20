@@ -1,1 +1,1 @@
-# E-commerce-website-foe-selling-security-locks
+# E-commerce-website-for-selling-security-locks
